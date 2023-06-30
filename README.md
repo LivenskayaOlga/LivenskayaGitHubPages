@@ -1,5 +1,5 @@
 # Ливенская Ольга
-![Всем привет!](https://drive.google.com/file/d/1MwYSYRkZoeJb9NIEWSJdFO-R1d3COUV9/view?usp=sharing)
+![Всем привет!](3b0_m0s82Ek.jpg)
  
 
 Я учусь в Нетологии на курсе ___Инженер по тестированию___  
